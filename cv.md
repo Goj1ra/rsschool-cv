@@ -13,3 +13,4 @@
 ### Education 
 - Minsk Radioengineering College (2018 - 2022)
 ### English Level - B1
+### Employment status - unemployed 
